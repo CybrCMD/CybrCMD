@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @CybrCMD
+- 👋 Hi, I’m Raden Wisnu Andhika Pranidhia
 - 👀 I’m interested in technology
 - 🌱 I’m currently learning how to code
 - 📫 How to reach me ig = @radenwisnu21
